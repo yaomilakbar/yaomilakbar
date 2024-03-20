@@ -7,4 +7,4 @@ Terdaftar diberbagai situs jejaring sosial dimana Anda dapat menjadi “Penggema
 
 1. [Pexels](https://s.id/-18U2L)
 2. [Instagram](https://s.id/-18U3f)
-3. [Blog](https://akbaryaom.xyz)
+3. [Blog](https://www.yaomi.blog)
