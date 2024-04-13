@@ -5,6 +5,6 @@ Saya Yaomil Akbar, tapi sering dipanggil Emil. Sangat tertarik pada blogging dan
 #### Jejaring Sosial
 Terdaftar diberbagai situs jejaring sosial dimana Anda dapat menjadi “Penggemar”, berbicara dengan pengguna lain atau mengikuti berita terbaru yang terkait dengan situs ini.
 
-1. [Pexels](https://s.id/-18U2L)
-2. [Instagram](https://s.id/-18U3f)
-3. [Blog](https://www.yaomi.blog)
+1. [Pexels](https://www.pexels.com/@yaomilakbar)
+2. [Threads](https://www.threads.net/@yaomiakb)
+3. [Blog](https://yaomiab.com)
