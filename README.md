@@ -8,3 +8,5 @@ Terdaftar diberbagai situs jejaring sosial dimana Anda dapat menjadi “Penggema
 1. [Pexels](https://www.pexels.com/@yaomilakbar)
 2. [Threads](https://www.threads.net/@yaomiakb)
 3. [Blog](https://yaomiab.com)
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/Z8Z71BPCPC)
